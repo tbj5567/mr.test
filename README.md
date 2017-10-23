@@ -45,5 +45,5 @@ UV洁净水质：紫外线杀菌灯处理每一滴准备雾化的水，有效杀
 <br />1) Remove the lid and cover the water bottle
 <br />2) align the position and place the water bottle
 <br />3) Power on, open the wire control switch
-<b>[Note]</b>
+<br /><b>[Note]</b>
 <p>For the first time, you need to push the silicone piston connected to the mouth of the bottle, so that when the mineral water is turned upside down, the flow can flow normally.</p>
