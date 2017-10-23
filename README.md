@@ -38,12 +38,15 @@ UV洁净水质：紫外线杀菌灯处理每一滴准备雾化的水，有效杀
 <b>[A variety of color options, fashionable and beautiful]</b>
 <br />The shell uses a reverse spraying process, bright and rich metallic texture, while giving the product more fun and color.
 <br />Whether it is to send friends, family or colleagues, it's a great gift choice.
+<br />
 <br /><b>[Self defined bottle type water tank,Capacity is determined by yourself]</b>
 <br />Can be accessed 250ML, 555ML, 800ML and other different specifications of the water bottle.
 <br />Two nozzles can cope with different nozzles.
+<br />
 <br /><b>[Three-step connection water source]</b>
 <br />1) Remove the lid and cover the water bottle
 <br />2) align the position and place the water bottle
 <br />3) Power on, open the wire control switch
-<br /><b>[Note]
+<br />
+<br /><b>[Note]</b>
 <br />For the first time, you need to push the silicone piston connected to the mouth of the bottle, so that when the mineral water is turned upside down, the flow can flow normally.
