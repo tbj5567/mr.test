@@ -4,10 +4,10 @@ https://mall.jd.com/index-597148.html
 自营店
 http://mall.jd.com/index-680227.html
 
-<br>外接水箱：一瓶矿泉水就能运行，方便易携带，同时避免了传统加湿器长期水箱无法清洗滋生细菌的情况。
-<br>静音：享受完全的宁静，由于内部结构的改善，加湿器基本上是无噪音的，非常适合在办公室或睡觉时使用。
-<br>出雾范围广：涡轮风机以170万/次高频震荡，水雾更细腻，配合内置涡轮风扇，出雾更快，雾量更多。
-<br>UV洁净水质：紫外线杀菌灯处理每一滴准备雾化的水，有效杀菌，防止细菌滋生，高效净水。
+<br>外接水箱：一瓶矿泉水就能运行，方便易携带，同时避免了传统加湿器长期水箱无法清洗导致滋生细菌的情况。
+<br>静音：享受安静的环境，由于内部结构的改善，加湿器基本上是无噪音的，非常适合在办公室或睡觉时使用。
+<br>出雾范围广：涡轮风机以170万/次高频震荡，水雾更细腻，配合内置涡轮风扇，出雾更快。
+<br>UV洁净水质：紫外线杀菌灯处理每一滴准备雾化的水，有效杀菌，防止细菌滋生。
 <br>开合式出雾口设计：人性化设计，可以调整出雾角度。
 
 <br>【多种颜色选择，时尚美观】
@@ -24,13 +24,13 @@ http://mall.jd.com/index-680227.html
 <br>首次使用您需要把连接瓶口的硅胶活塞推出来，便于矿泉水倒置时，水流能正常流入。
 <br><br>
 
-<p>THE EXTERNAL WATER TANK: a bottle of mineral water can run.It's easy to carry,meanwhile,it can avoid the traditional humidifier tank can not be washed in a long time, resulting in breeding bacteria.</p>
+<p>EXTERNAL WATER TANK: a bottle of mineral water can run.It's easy to carry, meanwhile, it can avoid the traditional humidifier tank can not be washed in a long time, resulting in breeding bacteria.</p>
 
-<p>PEACE and QUIET: Enjoy complete serenity thanks to the improved inner structure that makes the humidifier basically noiseless; ideal for use at the office or during sleep.</p>
+<p>PEACE and QUIET: Enjoy quiet environment thanks to the improved inner structure that makes the humidifier basically noiseless; ideal for use at the office or during sleep.</p>
 
-<p>WIDE RANGE OF HUMIDIFICATION: turbine with 1 million 700 thousand every second high frequency oscillation, water mist is more delicate, with the built-in turbine fan, Water mist comes out faster.</p>
+<p>WIDE RANGE OF HUMIDIFICATION: With 1 million 700 thousand every second high frequency oscillation in turbine, water mist is more delicate, and with the built-in turbine fan, it comes out faster.</p>
 
-<p>UV CLEAN WATER QUALITY: UV germicidal lamp deal with every drop of prepared atomized water, prevent the breeding of bacteria, efficient water purification.</p>
+<p>UV CLEAN WATER QUALITY: UV germicidal lamp deal with every drop of prepared atomized water to kill bacteria efficiently, which prevent the breeding of bacteria.</p>
 
 <p>OPENING and CLOSING TYPE OF DESIGN: humanized design, can adjust the angle of water mist.</p>
 
