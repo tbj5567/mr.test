@@ -37,6 +37,7 @@ UV洁净水质：紫外线杀菌灯处理每一滴准备雾化的水，有效杀
 
 <b>[A variety of color options, fashionable and beautiful]</b>
 <p>The shell uses a reverse spraying process, bright and rich metallic texture, while giving the product more fun and color.</p>
+<br />
 <p>Whether it is to send friends, family or colleagues, it's a great gift choice.</p>
 <b>[Self defined bottle type water tank,Capacity is determined by yourself]</b>
 <p>Can be accessed 250ML, 555ML, 800ML and other different specifications of the water bottle.</p>
