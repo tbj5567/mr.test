@@ -28,16 +28,15 @@ PD:
 说明书*1
 电源线*1
 包装盒*1
-
-[<b>A variety of color options, fashionable and beautiful</b>]
+<b>[A variety of color options, fashionable and beautiful]</b>
 <p>The shell uses a reverse spraying process, bright and rich metallic texture, while giving the product more fun and color.</p>
-Whether it is to send friends, family or colleagues, it's a great gift choice.
-[<b>Self defined bottle type water tank,Capacity is determined by yourself</b>]
+<p>Whether it is to send friends, family or colleagues, it's a great gift choice.</p>
+<b>[Self defined bottle type water tank,Capacity is determined by yourself]</b>
 Can be accessed 250ML, 555ML, 800ML and other different specifications of the water bottle.
 <p>Two nozzles can cope with different nozzles.</p>
-[<b>Three-step connection water source</b>]
+<b>[Three-step connection water source]</b>
 <p>1) Remove the lid and cover the water bottle</p>
 <p>2) align the position and place the water bottle</p>
 <p>3) Power on, open the wire control switch</p>
-[<b>Note</b>]
+<b>[Note]</b>
 <p>For the first time, you need to push the silicone piston connected to the mouth of the bottle, so that when the mineral water is turned upside down, the flow can flow normally.</p>
