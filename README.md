@@ -13,16 +13,16 @@ http://mall.jd.com/index-680227.html
 <br>【多种颜色选择，时尚美观】
 <br>外壳采用反面喷塑工艺，色泽光亮富有金属质感，同时赋予产品更多乐趣与颜色。
 <br>无论是送朋友、送家人还是送同事，都是一个不错的送礼选择
-<br>【自定义水瓶式水箱，自己决定容量】
+<br><br>【自定义水瓶式水箱，自己决定容量】
 <br>可接250ML,555ML,800ML等不同规格的水瓶。
 <br>两种盖嘴可以应对不一样的喷嘴。
-<br>【三步连接水源】
+<br><br>【三步连接水源】
 <br>1）取盖嘴，盖住水瓶	
 <br>2）对准位置，放置水瓶
 <br>3）通电，打开线控开关
-<br>【注意】
+<br><br>【注意】
 <br>首次使用您需要把连接瓶口的硅胶活塞推出来，便于矿泉水倒置时，水流能正常流入。
-
+<br><br>
 
 <p>THE EXTERNAL WATER TANK: a bottle of mineral water can run.It's easy to carry,meanwhile,it can avoid the traditional humidifier tank can not be washed in a long time, resulting in breeding bacteria.</p>
 
