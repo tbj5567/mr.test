@@ -24,6 +24,11 @@ http://mall.jd.com/index-680227.html
 <br>首次使用您需要把连接瓶口的硅胶活塞推出来，便于矿泉水倒置时，水流能正常流入。
 <br><br>
 
+
+TiTle : <b>Outlines Mini no noise Humidifier for home bedroom office study yoga spa ,quiet for baby room at night </b>
+
+<br>
+
 <p>EXTERNAL WATER TANK: a bottle of mineral water can run.It's easy to carry, meanwhile, it can avoid the traditional humidifier tank can not be washed in a long time, resulting in breeding bacteria.</p>
 
 <p>PEACE and QUIET: Enjoy quiet environment thanks to the improved inner structure that makes the humidifier basically noiseless; ideal for use at the office or during sleep.</p>
